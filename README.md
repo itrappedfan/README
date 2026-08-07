@@ -1,7 +1,9 @@
 # README 
 <p align="center"> Hello ! Names Rain / Aspen / Eli .,</p>
 <p align="center"> My prons are any !! </p>
-![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535304875858989137/Untitled24_20260807170736.png?ex=6a774796&is=6a75f616&hm=48ab0f111c4a664143c1d4b35fc8f0ead93a93d1df0f1a95b5bf4aebd2132fb8&)
+<p align="center">https://cdn.discordapp.com/attachments/1432963333837029521/1535304875858989137/Untitled24_20260807170736.png?ex=6a774796&is=6a75f616&hm=48ab0f111c4a664143c1d4b35fc8f0ead93a93d1df0f1a95b5bf4aebd2132fb8&
+  <img src="" width="900">
+</p>
 <p align="center"> I allow c+h , w21 and more idk..? </p>
 <p align="center"> I don't chat alot sorry !! </p>
 <p align="center"> Mostly with friends Aka Rebe or Sprite ( or random) </p>
