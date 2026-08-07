@@ -6,7 +6,7 @@ I allow c+h, v21 and more idk..?
 
 I dont chat alot sorry !!
 
-Mostly with friends Aka Rebe or Sprte ( or random)
+Mostly with friends Aka Rebe or Sprite ( or random)
 
 
 ![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535318021172760636/IMG_1177.png?ex=6a7753d5&is=6a760255&hm=d72e67fa7cb3e923f04fcfa75e903f6fe9dac4f2c2d395bcafe2cf300eb7436c&)
