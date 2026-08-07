@@ -2,8 +2,6 @@ Hello ! Names Rain / Aspen / Eli ..
 
 My prons are any !!
 
-![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535304875858989137/Untitled24_20260807170736.png?ex=6a774796&is=6a75f616&hm=48ab0f111c4a664143c1d4b35fc8f0ead93a93d1df0f1a95b5bf4aebd2132fb8&)
-
 I allow c+h, v21 and more idk..?
 
 I dont chat alot sorry !!
