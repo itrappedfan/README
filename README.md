@@ -1,7 +1,5 @@
 
 
-![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535332200734662787/IMG_1182.png?ex=6a776109&is=6a760f89&hm=8d320a2f699df0361faeee5ad04a6f92c7dadba35db713787af00f91372ea918&)
-
 <p align="center"> Names Rain / Aspen / Eli.. </p>
 
 <p align="center"> My prons are any !! </p>
@@ -33,5 +31,3 @@
 ![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535318073706283168/IMG_1179.png?ex=6a7753e1&is=6a760261&hm=0de8c882ad5c7ab293fdce3d77f34e082a11ae746090ec77b0ce054c3925c7ec&)
 
 
-
-![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535332200734662787/IMG_1182.png?ex=6a776109&is=6a760f89&hm=8d320a2f699df0361faeee5ad04a6f92c7dadba35db713787af00f91372ea918&)
