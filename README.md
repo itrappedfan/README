@@ -27,4 +27,4 @@
 
 
 
-![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535318073706283168/IMG_1179.png?ex=6a7753e1&is=6a760261&hm=0de8c882ad5c7ab293fdce3d77f34e082a11ae746090ec77b0ce054c3925c7ec&) I Also Love drawing + making friends and listening to music Thanks for also listening !! I'll Remake this maybe ? ><
+![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535318073706283168/IMG_1179.png?ex=6a7753e1&is=6a760261&hm=0de8c882ad5c7ab293fdce3d77f34e082a11ae746090ec77b0ce054c3925c7ec&)
