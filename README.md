@@ -1,10 +1,11 @@
-Hello ! Names Rain / Aspen / Eli ..
 
-My prons are any !!
+<p align="center"> Names Rain / Aspen / Eli.. </p>
 
-I allow c+h, v21 and more idk..?
+<p align="center"> My prons are any !! </p>
 
-I dont chat alot sorry !!
+<p align="center"> I allow c+h , w21 and more idk.., ? </p>
+
+I dont chat Alot sorry 
 
 Mostly with friends Aka Rebe or Sprite ( or random)
 
