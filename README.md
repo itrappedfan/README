@@ -34,6 +34,7 @@
 
 
 
-https://cdn.discordapp.com/attachments/1434467392632918067/1542231219079745596/Screenshot_20260826-205334.Discord2-5.jpg?ex=6a907a3f&is=6a8f28bf&hm=32704bd5a045d9463d9bb9dd680d59bd05c4e67138ad0bc67fbbdac5184ed48d&
+
+![image alt](https://discord.com/channels/@me/1434467392632918067/1542231219427614810)
 
 
