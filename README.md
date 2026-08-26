@@ -31,3 +31,9 @@
 ![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535318073706283168/IMG_1179.png?ex=6a7753e1&is=6a760261&hm=0de8c882ad5c7ab293fdce3d77f34e082a11ae746090ec77b0ce054c3925c7ec&)
 
 
+
+
+
+https://cdn.discordapp.com/attachments/1434467392632918067/1542231219079745596/Screenshot_20260826-205334.Discord2-5.jpg?ex=6a907a3f&is=6a8f28bf&hm=32704bd5a045d9463d9bb9dd680d59bd05c4e67138ad0bc67fbbdac5184ed48d&
+
+
