@@ -28,7 +28,7 @@
 
 
 
-![image alt](https://cdn.discordapp.com/attachments/1432963333837029521/1535318073706283168/IMG_1179.png?ex=6a7753e1&is=6a760261&hm=0de8c882ad5c7ab293fdce3d77f34e082a11ae746090ec77b0ce054c3925c7ec&)
+![image alt](https://cdn.discordapp.com/attachments/1434467392632918067/1542605333489524837/Untitled426_20260827213920.png?ex=6a91d6ab&is=6a90852b&hm=104d9326ca61f86c5db36f7aa0dfb3a1ea2282dbb0e69dc433791753b4264ad4&)
 
 
 
