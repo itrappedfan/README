@@ -20,4 +20,4 @@
 
 <p align="center"> Idk what else to say so.. Bye !! </p>
 
-![image alt](./https://cdn.discordapp.com/attachments/1434467392632918067/1542605333489524837/Untitled426_20260827213920.png?ex=6a91d6ab&is=6a90852b&hm=104d9326ca61f86c5db36f7aa0dfb3a1ea2282dbb0e69dc433791753b4264ad4&/.png)
+![image alt](/https://cdn.discordapp.com/attachments/1434467392632918067/1542605333489524837/Untitled426_20260827213920.png?ex=6a91d6ab&is=6a90852b&hm=104d9326ca61f86c5db36f7aa0dfb3a1ea2282dbb0e69dc433791753b4264ad4&)
