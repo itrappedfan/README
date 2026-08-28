@@ -8,7 +8,7 @@
 
 <p align="center"> Mostly with rebe , sprite or random </p>
 
-![image alt](YOUR IMAGE URL)
+![image alt](image alt)
 
 <p align="center"> I'm usually Online and I mean very Online !! </p>
 
@@ -22,4 +22,4 @@
 
 ![image alt](https://cdn.discordapp.com/attachments/1434467392632918067/1542605333489524837/Untitled426_20260827213920.png?ex=6a927f6b&is=6a912deb&hm=b4cbc2f697a3329a6e3352d129dd251c528295546d9c8e7584d6c800ce67416a&)
 
-![image alt](YOUR IMAGE URL)
+![image alt](image alt)
