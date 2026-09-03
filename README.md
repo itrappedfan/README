@@ -1,2 +1,2 @@
 
-<p align="front"> hi I'm Rain , Aspen Or Milo ( only for close ) , I Love Froggydudes real bad and have slot of ponies of him gahhh !!! Do Not Expect me to answer Quickly I do not pay attetion to random people but I will ok . Please PLEASEE Don't be scared to talk to me in whisper to say smth that you like my pony and please don't be shy to c+h idm , This Still is in wip <3 </p>
+<p align="front"> hi I'm Rain , Aspen Or Milo ( only for close ) , I Love Froggydudes real bad and have slot of ponies of him gahhh !!! Do Not Expect me to answer Quickly I do not pay attetion to random people but I will ok . This Still is in wip  <3 </p>
