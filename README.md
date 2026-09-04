@@ -1,2 +1,2 @@
 
-<p align="front"> hi I'm Rain , Aspen Or Milo ( only for close ) , I Love Froggydudes real bad and have slot of ponies of him gahhh !!! Do Not Expect me to answer Quickly I do not pay attetion to random people but I will ok . This Still is in wip  <3 </p>
+<p align="front"> This Still is in wip  <3 </p>
